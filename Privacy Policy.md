@@ -1,5 +1,5 @@
 **Privacy Policy**  
-Effective Date: July 14, 2025    
+Effective Date: November 29, 2025    
 Contact Email: jtnrdev@gmail.com  
 
 **Introduction**  
